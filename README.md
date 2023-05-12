@@ -5,3 +5,4 @@
 ![USTM___](https://user-images.githubusercontent.com/120157602/236824980-b31a7de6-2918-43b6-8350-e6af0f4746cf.svg)
 ![ustm_Logo_reciept](https://user-images.githubusercontent.com/120157602/236825637-e204b70c-eff9-4bd7-80a3-30e45475aac6.png)
 ![USTM_logo_blue_bg](https://github.com/sks9113/Image-Link/assets/120157602/b47021f5-5dc6-4987-8791-3de8370c7cb1)
+![USTM_Logo_Blue](https://github.com/sks9113/Image-Link/assets/120157602/44918292-97fc-46d7-9e37-b22d5b7667f3)
