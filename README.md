@@ -7,3 +7,4 @@
 ![USTM_logo_blue_bg](https://github.com/sks9113/Image-Link/assets/120157602/b47021f5-5dc6-4987-8791-3de8370c7cb1)
 ![USTM_Logo_Blue](https://github.com/sks9113/Image-Link/assets/120157602/44918292-97fc-46d7-9e37-b22d5b7667f3)
 ![USTM_revised_logo (1)](https://github.com/sks9113/Image-Link/assets/120157602/2f22ace4-a997-4f24-a92a-451c7eee8c1a)
+![qr code](https://github.com/sks9113/Image-Link/assets/120157602/b132874f-87a0-424b-894a-af602806b16f)
