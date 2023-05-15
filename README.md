@@ -13,3 +13,4 @@
 ![USTM_logo_header](https://github.com/sks9113/Image-Link/assets/120157602/e7cde78d-f25e-4be1-865c-aad1411e4448)
 ![logo_header](https://github.com/sks9113/Image-Link/assets/120157602/762d4166-fe4e-4629-98c5-2360890e008a)
 ![logo_header](https://github.com/sks9113/Image-Link/assets/120157602/a776cad5-9b33-4425-8db9-5e5c0014b0c7)
+qrcode1684156631279_qrcode.png![logo_4x](https://github.com/sks9113/Image-Link/assets/120157602/9b8ff62a-59b7-4e10-876a-1e8046c030de)
