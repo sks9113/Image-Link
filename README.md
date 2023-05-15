@@ -11,3 +11,5 @@
 ![Registration form header](https://github.com/sks9113/Image-Link/assets/120157602/0d2b4173-ce74-4b08-81f8-c0e1640f1e9a)
 ![USTM_Logo_watermark](https://github.com/sks9113/Image-Link/assets/120157602/34586d49-0b85-4711-bc2b-ca0346443c59)
 ![USTM_logo_header](https://github.com/sks9113/Image-Link/assets/120157602/e7cde78d-f25e-4be1-865c-aad1411e4448)
+![logo_header](https://github.com/sks9113/Image-Link/assets/120157602/762d4166-fe4e-4629-98c5-2360890e008a)
+![logo_header](https://github.com/sks9113/Image-Link/assets/120157602/a776cad5-9b33-4425-8db9-5e5c0014b0c7)
