@@ -9,3 +9,4 @@
 ![USTM_revised_logo (1)](https://github.com/sks9113/Image-Link/assets/120157602/2f22ace4-a997-4f24-a92a-451c7eee8c1a)
 ![qr code](https://github.com/sks9113/Image-Link/assets/120157602/b132874f-87a0-424b-894a-af602806b16f)
 ![Registration form header](https://github.com/sks9113/Image-Link/assets/120157602/0d2b4173-ce74-4b08-81f8-c0e1640f1e9a)
+![USTM_Logo_watermark](https://github.com/sks9113/Image-Link/assets/120157602/34586d49-0b85-4711-bc2b-ca0346443c59)
