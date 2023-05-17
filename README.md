@@ -6,3 +6,4 @@
 ![text_lms](https://github.com/sks9113/Image-Link/assets/120157602/9361c5f0-06de-4ac2-9c8d-ddc39291fb06)
 ![Logo](https://github.com/sks9113/Image-Link/assets/120157602/5fa322ee-1f83-4d3a-8431-0062a864a643)
 ![Logo_recpt](https://github.com/sks9113/Image-Link/assets/120157602/e8bb483e-ab7c-4ae4-960c-99727bc9c846)
+![USTM_Logo_watermark (1)](https://github.com/sks9113/Image-Link/assets/120157602/1c37f9da-b974-4f2f-bf70-6b04292f8350)
