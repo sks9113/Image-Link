@@ -10,3 +10,4 @@
 ![LMS_BLACK](https://github.com/sks9113/Image-Link/assets/120157602/4c456515-766a-485e-8dd3-1a8ef879973d)
 ![LMS](https://github.com/sks9113/Image-Link/assets/120157602/75790481-897c-44c9-85ab-31dcdb40421d)
 ![Admission_BG_2x (1)](https://github.com/sks9113/Image-Link/assets/120157602/887b503f-d3d5-433e-91f3-1f131053132e)
+![Rectangle_LMS](https://github.com/sks9113/Image-Link/assets/120157602/87bc39b9-93f5-4365-abc0-3decac27e2d1)
