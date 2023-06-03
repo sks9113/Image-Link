@@ -12,3 +12,4 @@
 ![Admission_BG_2x (1)](https://github.com/sks9113/Image-Link/assets/120157602/887b503f-d3d5-433e-91f3-1f131053132e)
 ![Rectangle_LMS](https://github.com/sks9113/Image-Link/assets/120157602/87bc39b9-93f5-4365-abc0-3decac27e2d1)
 ![USTM_Logo_A5](https://github.com/sks9113/Image-Link/assets/120157602/f05991ac-1401-4bd7-a67d-c47b21c1793b)
+![USTM Logo A5 (1)](https://github.com/sks9113/Image-Link/assets/120157602/2915f80a-817f-41c3-ba38-3f937a9e0958)
