@@ -15,3 +15,4 @@
 ![USTM Logo A5 (1)](https://github.com/sks9113/Image-Link/assets/120157602/2915f80a-817f-41c3-ba38-3f937a9e0958)
 
 ![a5_logo](https://github.com/sks9113/Image-Link/assets/120157602/8b27c023-b6ed-44ab-899b-fd6bbc96e27a)
+![USTM_Logo (1)](https://github.com/sks9113/Image-Link/assets/120157602/833480be-c102-4b8e-8507-41a9f16b3240)
