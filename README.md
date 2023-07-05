@@ -20,3 +20,4 @@
 ![Reciept_Logo_Header](https://github.com/sks9113/Image-Link/assets/120157602/6521932b-15cf-4ebe-833d-caf2bb152c5a)
 https://entraruniversitymedia.s3.ap-south-1.amazonaws.com/pdf/1688567958460_application.pdf?X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Date=20230705T143918Z&X-Amz-SignedHeaders=host&X-Amz-Expires=86400&X-Amz-Credential=AKIASRYLP762NZ737PMX%2F20230705%2Fap-south-1%2Fs3%2Faws4_request&X-Amz-Signature=cf2d1cb8276003872f36510d4dd8694e182025fdf64a114b4a9970d6dc2a1aef
 ![USTM_reciept_logo (1)](https://github.com/sks9113/Image-Link/assets/120157602/641e9468-a240-46c7-a49e-aae2bdb1d897)
+![USTM_reciept_logo (2)](https://github.com/sks9113/Image-Link/assets/120157602/ebe52fed-e25d-45e1-9331-08c3f259fe10)
