@@ -23,3 +23,4 @@ https://entraruniversitymedia.s3.ap-south-1.amazonaws.com/pdf/1688567958460_appl
 ![USTM_reciept_logo (2)](https://github.com/sks9113/Image-Link/assets/120157602/ebe52fed-e25d-45e1-9331-08c3f259fe10)
 ![USTM_logo (2)](https://github.com/sks9113/Image-Link/assets/120157602/e154b16a-39fe-497f-b082-f9dd67fcae77)
 ![USTM_reciept](https://github.com/sks9113/Image-Link/assets/120157602/232fbc37-2737-4f5d-9f04-579531df142f)
+![logo (1)](https://github.com/sks9113/Image-Link/assets/120157602/9febc326-1fd4-4751-9ccc-032d2edef8db)
