@@ -32,3 +32,6 @@ https://entraruniversitymedia.s3.ap-south-1.amazonaws.com/pdf/1688567958460_appl
 
 ![RIST Watermark (2)](https://github.com/sks9113/Image-Link/assets/120157602/a71ad990-efcc-4e4c-b84d-717ae01d5c81)
 ![RIST Watermark (2)](https://github.com/sks9113/Image-Link/assets/120157602/e4983471-2969-4c7b-8e5d-d62bb0dc389b)
+![WIthout border](https://github.com/sks9113/Image-Link/assets/120157602/52e80232-1f0b-4080-a1d1-1ebef646fb23)
+![RIST Watermark (3)](https://github.com/sks9113/Image-Link/assets/120157602/aa9644a4-9008-4caa-96f5-0285734805fc)
+
