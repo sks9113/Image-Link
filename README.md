@@ -28,4 +28,6 @@ https://entraruniversitymedia.s3.ap-south-1.amazonaws.com/pdf/1688567958460_appl
 
 ![USTM_logo_banner](https://github.com/sks9113/Image-Link/assets/120157602/2e91d350-598c-4bf3-b3f9-8e0d80b91cef)
 ![RIST Watermark](https://github.com/sks9113/Image-Link/assets/120157602/d86f9c29-aea9-4e0f-a0c9-f9997399ca22)
+![REGIONAL INSTITUTE OF SCIENCE   TECHNOLOGY](https://github.com/sks9113/Image-Link/assets/120157602/6c5b9acb-3368-4e5a-8ff8-ecce20c2e186)
+
 
