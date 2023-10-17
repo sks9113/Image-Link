@@ -30,4 +30,5 @@ https://entraruniversitymedia.s3.ap-south-1.amazonaws.com/pdf/1688567958460_appl
 ![RIST Watermark](https://github.com/sks9113/Image-Link/assets/120157602/d86f9c29-aea9-4e0f-a0c9-f9997399ca22)
 ![REGIONAL INSTITUTE OF SCIENCE   TECHNOLOGY](https://github.com/sks9113/Image-Link/assets/120157602/6c5b9acb-3368-4e5a-8ff8-ecce20c2e186)
 
+![RIST Watermark (2)](https://github.com/sks9113/Image-Link/assets/120157602/a71ad990-efcc-4e4c-b84d-717ae01d5c81)
 
