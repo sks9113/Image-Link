@@ -99,4 +99,3 @@ https://entraruniversitymedia.s3.ap-south-1.amazonaws.com/pdf/1688567958460_appl
     </g>
   </g>
 </svg>
-
